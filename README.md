@@ -3,7 +3,7 @@
 - 🌱 I’m currently a first-year enrolled at Miami University 
 - 📫 How to reach me @steeleva@miamioh.edu
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: I have injured every every arm and leg
+- ⚡ Fun fact: I have injured every arm and leg
 
 <!---
 Numberone-vic/Numberone-vic is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
