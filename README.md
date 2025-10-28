@@ -1,6 +1,6 @@
 - 👋 Hello My name is Victor Steele
 - 👀 I’m interested in coding
-- 🌱 I’m currently a first-year enrolled at Miami University 
+- 🌱 I’m currently a Second-year enrolled at Miami University 
 - 📫 How to reach me @steeleva@miamioh.edu
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: I have injured every arm and leg
